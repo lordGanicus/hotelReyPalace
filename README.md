@@ -1,2 +1,2 @@
 # hotelReyPalace
-Lading Page Hotel Rey Palace
+Ladingg Pagge Hotel Rey Palace
